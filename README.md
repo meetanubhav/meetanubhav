@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking for opportunities
 - 💬 Let's talk and share our knowledge
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2021 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play mobile games
 
 ### Connect with me:
